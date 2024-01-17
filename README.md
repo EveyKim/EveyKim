@@ -1,5 +1,5 @@
 ### Hello there 👋
-###My name is Evey Kim. Some interesting facts about me are:
+My name is Evey Kim. Some interesting facts about me are:
 - My favorite color is navy blue. 🟦
 - One of my favorite things to do in my free time is to goaltend in ice hockey. 🏒
 - My favorite video game is Minecraft. ⛏️
